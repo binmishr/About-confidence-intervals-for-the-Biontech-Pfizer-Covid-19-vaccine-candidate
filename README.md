@@ -1,0 +1,1 @@
+# About-confidence-intervals-for-the-Biontech-Pfizer-Covid-19-vaccine-candidate
